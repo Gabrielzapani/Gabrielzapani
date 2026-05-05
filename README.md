@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Gabrielzapani
+- 👋 Hi, I’m @Gabrielzapani.
 - 👀 I’m interested in playing ball
 - 🌱 I’m currently studying
 - 💞️ I’m looking to try to improve 
